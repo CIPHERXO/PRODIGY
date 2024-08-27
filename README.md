@@ -3,6 +3,7 @@
 Machine Learning Intern Projects (Prodigy InfoTech)
 
 FOR ALL THE PROJECS GIVEN DURING THE INTERNSHIP 
+
 STARTING FROM : 1/09/2024
 ENDING : 1/10/2024
 
