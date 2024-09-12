@@ -13,7 +13,7 @@ ALL PROJECT REPOSITORY LINK :-
 
 2) https://www.linkedin.com/posts/kartikthakur4314_prodigyinfotech-python-ai-activity-7237346355189354500-ddX5?utm_source=share&utm_medium=member_desktop
 
-3)
+3) https://www.linkedin.com/posts/kartikthakur4314_prodigyinfotech-artificialintelligence-machinelearning-activity-7239890403972300800-9qDE?utm_source=share&utm_medium=member_desktop
 
 4)
 
